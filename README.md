@@ -1,0 +1,2 @@
+# ask
+sende aşık ol
